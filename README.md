@@ -1,10 +1,11 @@
+
 # Sasha Chan
 
 • Hi I'm Sasha jngan lupa subrek channel its me sasha chan
 
 <h1 align="center">Hello <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="40px" alt=""><br></h1>
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/95025437/147376834-8e770d22-20eb-4404-9904-fdf26ccf4374.jpg" />
+  <img src="https://user-images.githubusercontent.com/99161705/152746719-eb69b6e1-14d2-4272-a6ba-9a9e4f375192.jpg" />
 </p> 
 
 
