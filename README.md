@@ -1,10 +1,11 @@
+
 # Sasha Chan
 
 • Hi I'm Sasha jngan lupa subrek channel its me sasha chan,gw masih pemula dan aku hnya recode doang:v jngan bully bang
 
 <h1 align="center">Hello <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="40px" alt=""><br></h1>
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/99161705/153747672-376762e6-ea37-48bc-a106-efb12a36df9a.jpg" />
+  <img src="https://user-images.githubusercontent.com/99161705/154454744-a320338b-3027-450a-924e-d2a79a6635e1.jpg" />
 </p> 
 
 
