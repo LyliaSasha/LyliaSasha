@@ -11,7 +11,8 @@
 </p> 
 
 
-# BOT WHATSAPP BY FOXTEAM![eiji](https://user-images.githubusercontent.com/99161705/156514145-a2590d28-2e7c-4515-96a0-c2054c89ccab.jpg)
+# BOT WHATSAPP BY FOXTEAM
+
 
 
 <p align="center"> 
