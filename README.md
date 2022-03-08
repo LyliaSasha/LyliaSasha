@@ -42,7 +42,7 @@ I LIKE TO USE HERO LYLIA
  - Name : Sasha Samiya / Ray suzuki
  - Age : 22
  - Gender / kelamin : Cewek
- - tangal lahir : 1 juli 2042
+ - tangal lahir : 1 juli 2004
  - Askot : Bekasi jawa barat
 
 
