@@ -1,8 +1,3 @@
-# SASHA OFFICAL CHANNEL
-
-• Hi My name is Sasha Chan. I will share Sc again or github yes And Subscribe Its Channel Me Sasha Chan Yes And Support Me To Be Enthusiastic Again
-
-<h1 align="center">Hello Lord <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="40px" alt=""><br></h1>
 <p align="center">
   <img src="https://user-images.githubusercontent.com/99161705/160794102-8fffe738-fa98-42e9-bcbe-7843bb037edc.jpg" />
 </p> 
@@ -38,7 +33,7 @@ And I like to play Lylia or other mages. I'm Top Global Mage. Yes, I enter the c
  - Name : Sasha Samiya / Ray suzuki
  - Age : 22
  - Gender / kelamin : Cewek
- - tangal lahir : 1 juli 2004
+ - tangal lahir : 1 juli 1997
  - Askot : Bekasi jawa barat
 
 
