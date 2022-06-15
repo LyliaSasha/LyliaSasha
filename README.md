@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://user-images.githubusercontent.com/99161705/160794102-8fffe738-fa98-42e9-bcbe-7843bb037edc.jpg" />
+  <img src="https://user-images.githubusercontent.com/99161705/173761196-7108fdaa-2d52-496f-becd-1bed0b70d372.jpg" />
 </p> 
 
 • Halo Semua namaku Sasha Saya suka main game ml nick ml itu sky minato yang suka main lylia atau main mage
