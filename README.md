@@ -23,7 +23,7 @@
  - Name : Sasha Samiya / Ray suzuki
  - Age : 22
  - Gender / kelamin : Cewek
- - tangal lahir : 1 juli 1997
+ - tangal lahir : Tebak aja
  - Askot : Bekasi jawa barat
 
 
